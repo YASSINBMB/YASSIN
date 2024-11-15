@@ -32,7 +32,7 @@ Je travaille activement sur des projets open-source et j'aime explorer de nouvel
 ## 📫 Me contacter
 - **E-mail** : [yassin@mokarram.fr]
 - **LinkedIn** : [linkedin.com/in/yassin-mokarram-ba49692b4]
-- **Site Web** : [yassinmokarram.com](#) _(à venir)_
+- **Site Web** :  _(à venir)_
 
 ---
 
